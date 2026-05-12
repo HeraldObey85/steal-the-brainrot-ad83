@@ -1,4 +1,4 @@
-#  
+#  no-ban steal the brainrot base Scripts is the best steal the brainrot base Script, featuring auto-sell and teleport. Safe and powerful for all your
 
 
 
